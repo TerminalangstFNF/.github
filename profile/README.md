@@ -1,2 +1,3 @@
 Whole seperate org just to move my FNF shit seperately here. Hai!
-[bleh](https://i.pinimg.com/736x/87/93/f4/8793f4e07f279e657ba1b82c6d2b785b.jpg)
+#
+[![ass](https://i.pinimg.com/736x/1f/79/f0/1f79f0a3aa44737ddbc09bbda8c3cb76.jpg)](https://pinterest.com)
